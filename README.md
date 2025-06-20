@@ -50,4 +50,7 @@ You are required to:
 
 Good luck, and we look forward to seeing your work!
 
+<img width="1417" alt="Screenshot 2025-06-20 at 20 37 55" src="https://github.com/user-attachments/assets/24d7a0a1-9da1-4a97-95b8-c91b176e6938" />
+
+
 — **Data Internship Team**
